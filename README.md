@@ -1,0 +1,2 @@
+# adectushi
+Alımlar
